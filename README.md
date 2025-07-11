@@ -1,6 +1,7 @@
 👋 ¡Hola!
 - Me llamo Luis Fernando Quena Quispe😄✨
 - Estudia en la Carrera de Ingenieria en Sistemas  💻📚⚙️
+- Motivacion 💪🏆
 - 🌟 "Cree en ti y todo será posible. 💪✨ #TúPuedes"
 - 🚀💥 ¡El límite solo está en tu mente!
 - 🏆 "El éxito no es suerte, es esfuerzo diario. 🔁💼"
